@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **rishavchaudhary2019@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1-0gf7aHeYY010qy9G9-XTui7GSVSA6ps/view?usp=sharing](https://drive.google.com/file/d/1-0gf7aHeYY010qy9G9-XTui7GSVSA6ps/view?usp=sharing)
+- 📄 Know about my experiences [Resume/CV](https://drive.google.com/file/d/1qQmVpp4tbeiuLi-AYiTj_YHrVMdl2j5h/view?usp=sharing)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
